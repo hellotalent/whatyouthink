@@ -1,2 +1,0 @@
-# whatyouthink
-gt_èçehfozrge
